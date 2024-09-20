@@ -64,4 +64,4 @@
 | ![](https://avatars.steamstatic.com/bdd9a85ace89ebe74872ff95570a0773bf7d2f09.jpg) | 󠀡󠀡󠀡󠀡󠀡󠀡󠀡󠀡          | [76561198307391031](https://steamcommunity.com/profiles/76561198307391031/) | ✅           | 2024-09-09 15:24:17 |          |
 | ![](https://avatars.steamstatic.com/762c824b938d46fc7715d8fe1c89fa9b41eeca8e.jpg) | Tonycolin         | [76561198381691463](https://steamcommunity.com/profiles/76561198381691463/) | ✅           | 2024-09-10 07:09:53 |          |
 | ![](https://avatars.steamstatic.com/8adcd386fed3860980e7833ea1d11a699eee2fd7.jpg) | Nickiwo           | [76561198367725896](https://steamcommunity.com/profiles/76561198367725896/) | ✅           | 2024-09-10 18:38:41 |          |
-| ![](https://avatars.steamstatic.com/1b36c023fe08be70f5bea937cd8f64cd22b80961.jpg) | プロポーズ             | [76561199103497365](https://steamcommunity.com/profiles/76561199103497365/) | ✅           | 2024-09-10 16:10:40 |          |
+| ![](https://avatars.steamstatic.com/4ba937c200731d891001d551b85a3be2ca9e9260.jpg) | プロポーズ             | [76561199103497365](https://steamcommunity.com/profiles/76561199103497365/) | ✅           | 2024-09-10 16:10:40 |          |
