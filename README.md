@@ -66,3 +66,4 @@
 | ![](https://avatars.steamstatic.com/8adcd386fed3860980e7833ea1d11a699eee2fd7.jpg) | Nickiwo           | [76561198367725896](https://steamcommunity.com/profiles/76561198367725896/) | ✅           | 2024-09-10 18:38:41 |          |
 | ![](https://avatars.steamstatic.com/68d2198f10d7a46c09e5093579fb12cfacc5e357.jpg) | ちょっとアンニュイ         | [76561199103497365](https://steamcommunity.com/profiles/76561199103497365/) | ✅           | 2024-09-10 16:10:40 |          |
 | ![](https://avatars.steamstatic.com/1eadb0b7381dc55b7ca7a2e77ae52e341789c17b.jpg) | RedREED           | [76561199202357354](https://steamcommunity.com/profiles/76561199202357354/) | ✅           | 2024-09-21 09:31:27 |          |
+| ![](https://avatars.steamstatic.com/6575eb03e0bdc8669bd4664e91204ca17d01d2fc.jpg) | 高槻ソラ              | [76561198436199075](https://steamcommunity.com/profiles/76561198436199075/) | ✅           | 2024-11-27 15:33:13 |          |
